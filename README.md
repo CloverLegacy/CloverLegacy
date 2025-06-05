@@ -2,16 +2,13 @@
 
 ![image](https://file.garden/Z5XfcGXMBSWGuItV/IMG_2651.jpeg)
 
-<p align="center"> Itrapped ∙ Azure ∙ Twotime ∙ Tela ∙ Nicknames </p>
-
-<p align="center"> C+H FREELY | CUDDLE COMF 
 
 
 
 
 <p align="center"> ____________________________________________________________ </p>
 
-<p align="center"> please dni if you're over 25
+<p align="center"> dni if you're over 25
 
 <p align="center"> I block freely, please don’t take it personally </p>
 
