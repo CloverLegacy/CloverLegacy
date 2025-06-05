@@ -9,9 +9,6 @@ When this house don't feel like home? " </ins> </p>
 
 <p align="center"> ____________________________________________________________ </p>
 
-<p align="center"> dni if you're over 25
-
-<p align="center"> I block freely, please don’t take it personally </p>
 
 <div align="center">
 
